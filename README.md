@@ -1,4 +1,4 @@
-👥 projectPOLX2 – HackYeah Hackathon
+👥 HackYeah Hackathon 2025
 
 Team Name: projectPOLX2
 
